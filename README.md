@@ -42,7 +42,7 @@
 ### 📫 للتواصل
 
 * 📧 Email: [ziadhashem@example.com](mailto:ziadhashem@example.com)
-* 💼 LinkedIn / Freelance / CV: 
+* 💼 LinkedIn / Freelance / CV: https://www.linkedin.com/in/ziad-hashem-a26581152/
 
 ---
 
